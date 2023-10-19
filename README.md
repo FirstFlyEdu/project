@@ -3,4 +3,4 @@
 
 [this this is reel based on project] https://www.facebook.com/reel/711869377644319
 
-[blogspot link for my page ]   https://www.blogger.com/blog/post/edit/7858924639834629563/6911051948398744704
+[blogspot link for my page ]   https://firstflyedu.blogspot.com/
